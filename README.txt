@@ -1,2 +1,0 @@
-Jack Mossbarger
-Chicago Bears
